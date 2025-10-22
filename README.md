@@ -1,4 +1,4 @@
-## Dorota-Wasiak
+## Dorota Wasiak
 Business System Analyst | Product Owner
 
 ### About me 📖
